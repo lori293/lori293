@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **srivastava.lori29@gmail.com**
 
-- ⚡ Fun fact **I'm a overthinker**
+- ⚡ Fun fact **I'm an overthinker**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
